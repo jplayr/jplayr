@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @jplayr
-- 👀 I’m interested in ...
+- 👋 Hi, I’m shit
+- 👀 I’m interested in farting
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on farting
 - 📫 How to reach me ...
 
 <!---
